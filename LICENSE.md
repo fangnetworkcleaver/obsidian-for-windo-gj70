@@ -1,4 +1,4 @@
-# 
+# Get the ultimate Obsidian for Windows addon with Obsidian for Windows professional Addon: templates & offline-access. Featuring templates and offline-access, it's the best choice
 
 
 
